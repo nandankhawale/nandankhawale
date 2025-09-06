@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @nandankhawale
 - 👀 I’m interested in GRAPHICS DESIGNING,Machine learning,artificial intelligence ,GENAI
 - 🌱 I’m currently learning Dr. D. Y. PATIL INSTITUTE OF TECHNOLOGY PIMPRI,PUNE.
-- 📫 How to reach me LINKDIN/INSTAGRAM/TWITTER
 - 😄 Pronouns: HE/HIM
 - ⚡ Fun fact: ...
 
